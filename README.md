@@ -1,2 +1,2 @@
-Wurst's source code,
-if something doesnt make since figure it out ur self faggot before asking me
+  Wurst's source code,
+if something doesnt make sense, try to figure it out ur self before asking me
